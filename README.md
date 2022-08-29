@@ -1,4 +1,4 @@
-- 🧚‍♀️ oi! meu nome é @fairytae
+- 🧚‍♀️ oi! meu nome é @geh
 - ✨ iniciante no GitHub.
 - ✨ aprendendo programação.
 - ✨ email para contato geovanna.lima.caetano@escola.pr.gov.br
